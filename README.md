@@ -21,4 +21,4 @@ Operations Information and Management (BBA)
 
 ### Additional Information:
 
-- ⚡ Fun fact: I enjoy listening to music, playing basketball, and playing video games.
+- ⚡ Fun fact: I enjoy listening to music, playing basketball, and watching the Celtics play.
